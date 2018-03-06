@@ -1,5 +1,5 @@
 # LEILA YVONNE MILES
-               _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
+       _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
 
 ## SKILLS
 Office skills: multi-tasking, spreadsheets, scheduling, research, social media Marketing: Marketing strategy, event planning, public presentations, General Business: research, budget monitoring, Computer: sales CRM system, Etapestry donor database management system, SAP, Visio, Adobe Creative Suite, Dreamweaver & FLASH Language: French
@@ -8,22 +8,22 @@ Office skills: multi-tasking, spreadsheets, scheduling, research, social media M
 
 **Redmond, WA 2015 - present**
 ### NOVITEX ENTERPRISES, INC. at MICROSOFT CORPORATION
-_Receptionist_
+_Receptionist_  
 Enhance the lobby experience at Novitex client Microsoft main campus.  Engage guests, explore options with them, excite and exceed expectations daily. Handle multiple requests simultaneously at busy corporate reception desk.  Ensure conference rooms are booked daily.  Provide access to employee rewards benefits and commuter program, arrange car service, provide facility improvement requests, maintain impeccable professional appearance.
 
 **Seattle, WA 2008 – 2016**
 ### LMCREATIVE COMMUNICATIONS
-_CEO_
+_CEO_  
 Led consulting business offering marketing, fundraising, PR and media expertise.  Offer event promotion plans, major donor strategies and prospects, media placement and publicity for clients such as eLearners.com, UNCF, p.i.n.k Vodka, Musiq Soulchild, Vitamin Water.
 
 **Redmond, WA 2009 – 2011**
 ### DIGNITY MEMORIAL
-_Family Service Counselor_
+_Family Service Counselor_  
 Inside sales representative protecting families through pre-need and at-need funeral and cemetery sales totaling over $140k.  August 2010 sales were #10 in the market at over $48,000.
 
 **Seattle, WA 2005 – 2007**
 ### NORTHWEST AFRICAN AMERICAN MUSEUM
-_Director of Development_ 
+_Director of Development_   
 Led fundraising for over 91% of $22 million capital campaign.  Raised over $17 million from all levels of government, foundations, corporations and individuals between 2005 - 2007.  
 * Worked directly with and advised Executive Director.
 * Jointly developed strategic plan and business plan with Executive Director and Deputy Director for Museum.
