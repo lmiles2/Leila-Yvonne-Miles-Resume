@@ -1,5 +1,5 @@
-# LEILA YVONNE MILES
-       _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
+# _LEILA YVONNE MILES_  
+_6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
 
 ## SKILLS
 Office skills: multi-tasking, spreadsheets, scheduling, research, social media Marketing: Marketing strategy, event planning, public presentations, General Business: research, budget monitoring, Computer: sales CRM system, Etapestry donor database management system, SAP, Visio, Adobe Creative Suite, Dreamweaver & FLASH Language: French
